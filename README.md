@@ -19,6 +19,19 @@ Disque SSD WD BLACK SN7100 500 Go 6 800 Mo/s : ( 56e )
 
 #preview 
 
+![IMG_8647 (1)](https://github.com/user-attachments/assets/901be321-5685-431e-8ef1-0577e8da3bc7)
+
+![IMG_8649 (1)](https://github.com/user-attachments/assets/69d8d574-3290-4b8a-87c5-08b307f4704e)
+
+![IMG_8648](https://github.com/user-attachments/assets/bd1b1f8f-d53b-4f3c-b690-f61bf890e66e)
+
+![IMG_8640](https://github.com/user-attachments/assets/43f8f293-bfb4-4e74-8099-627499904e72)
+
+![IMG_8643 (1)](https://github.com/user-attachments/assets/b0f7d598-77e9-4009-b4b5-5b6ee69a7450)
+
+![IMG_8645 (1)](https://github.com/user-attachments/assets/ebca6755-2eec-4df2-88c1-ab5870b7b351)
+
+
 
 
 
